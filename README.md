@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Cydia-source
+- 👀 I’m interested in Linuz
+- 🌱 I’m currently learning C and HTML
+- 😄 Pronouns: He Him
+- ⚡ Fun fact: Have lots or old iPhones
